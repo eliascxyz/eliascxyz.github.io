@@ -1,2 +1,2 @@
 # eliascxyz.github.io
-My personal Website with my Links
+ My personal Website containing my Socials 
